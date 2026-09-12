@@ -13,4 +13,15 @@
 
 - Vollmod ist in der Nacht vom 09. auf den 10.
 
--
+\=> Wer ist Ernst?!? (der Dude den Wachter losgeschickt hat) Handlanger
+
+\=> Haliq der Butler
+
+\=>
+
+Silberaxt mit gravur
+-> Gravur: lootet eure Opfer ihr \*\*\*
+
+- Bernstein -> idk was der kein
+
+15 Uhr ist das Gasthaus und die Kirche wieder offen
