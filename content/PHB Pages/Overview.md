@@ -1,2 +1,2 @@
-\[weapons and armor]\(\_attachments/weapons and armor.pdf)
-\[weapon masteries]\(\_attachments/weapon masteries.pdf)
+![[PHB Pages/weapons and armor.pdf]]
+![[PHB Pages/weapon masteries.pdf]]
