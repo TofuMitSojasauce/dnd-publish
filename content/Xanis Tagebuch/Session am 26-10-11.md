@@ -22,4 +22,72 @@
 
 - älterer Herr, auf einem Auge blind auf dem anderen Halbblind
 - Renshu hat die ganze Braon Seche gespillt um zu erklären wieso wir silber haben
--
+
+# Am Treffpunkt mit Fiona
+
+- Fiona Aussehen
+  - Hose
+  - Lederschuhe
+  - Hat Krähe auf der Schulter -> Lazlos Senses Tingeln
+  - Messer? am Grütel
+  - Zitat Lazlo: Hot und Kampfbereit
+
+- begleitet von 4 Buchklub Mitglieder
+  - Großer junger Mann?
+  - Alter kahlöer Mann
+  - kleine Mitelalte Frau
+  - große lange junge Frau
+
+- Mochid möchte Krähe streicheln
+  - weicht zurück
+  - Familien Krähe Majesto -> rote Augen
+
+- hagere Gestant mit knottigen Füßen kauert auf Ast oder so
+
+- Kampfmale überall und an Mundwinkeln
+
+- "Kleidung" aus zusammengeflickem Leder
+
+- "hmm kleine Singvögel die sich in den dunklen Wäldern verirrt haben"
+
+- Fiona "ich bin kein Kind..., ihr kennt den Wappen meiner Familien"
+
+- Viech "wo "
+
+- Fiona "lass uns, Sagt eurem Herren, wir vergessen dem Waldvolk nicht"
+
+- Viech "Schulden ja aber von Wem"
+
+- Fiona "Waldvolk, keine Siedlungen, verehen Ort iwo im Wald, verehen auch strahd"
+
+Schuld der der Familie Wachte:
+
+- eher Schuld Strahd als an dem Walvolk
+
+- Stahd hat vofahrin von Fiona verteidigt von nem Typ, nachdem der Ehemann schon niedergestreckt wurde
+
+- seit dem folgt Familie Strahd
+  - Immer noch?
+  - \=> Kleineres Übel gegenüber Baron, jeder Herrscher muss mal Strafend sein, er ist kein Gütiger Herrscher aber ein gerechter
+
+- weiter gehend
+
+- sehen Gebirgskette
+
+- folgen Straße nach Bergkette bevor wir rechts abbiegen
+
+...
+
+- Versammeln an Baumgruppe
+- Fiona: Wiviele Hexen und wie NAmen rausfinden?\`
+  - 3 Hexen
+  - schonamal getroffen
+  - Haus nach Vertrag durchsuchen
+- Fiona: kratzt Majesto an Kinn, "Ansonsten kann ich euch auch Majesto als Späher anbieten"
+- wie: "Ja nehmen wir"
+
+aufbau Mühle:
+EG
+1OG -> Mühlstein
+2OG -> richtiges Geschoss
+Dachboden ->

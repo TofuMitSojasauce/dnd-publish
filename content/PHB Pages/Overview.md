@@ -1,2 +1,2 @@
-[[weapon masteries.pdf]]
-[[weapons and armor.pdf]]
+\[weapons and armor]\(\_attachments/weapons and armor.pdf)
+\[weapon masteries]\(\_attachments/weapon masteries.pdf)
