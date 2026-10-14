@@ -91,3 +91,52 @@ EG
 1OG -> Mühlstein
 2OG -> richtiges Geschoss
 Dachboden ->
+
+- Mojestro geht spähen
+
+- Problem
+  - ? Hexen
+  - eine Hexe im EG
+  - 2 Hexen im 2OG
+  - 2 Kinder in Käfigen im 2OG
+
+- Majestro ist Teufel
+
+- mochid wird spinne und fliegt mirhilfe von majestro zum og1 fenster
+
+- geht in og2
+
+- guckt nach Kindern aber kennt sie nicht
+
+...
+
+- Hexen gackern in eigener Sprache
+- Mochid geht Leiter zum Dachboden hoch
+
+---
+
+Pause
+
+---
+
+Mochid findet den Vertrag im Malstein
+
+- Auf Haut geschrieben
+
+- kann den Text aber nicht lesen weil er in Abysal geschrieben wurde
+
+- da sind aber Unterschiften
+
+- Mochid geht in EG?
+
+Morganta -Strumwüterin
+Belladonna- Sonnendiebin
+Ophalia - Wurmkriecherin
+
+---
+
+# Fetzerei mit Hexen
+
+- Buchclub beschwören den Bannkreis
+- 10 min - Let's Go
+-
